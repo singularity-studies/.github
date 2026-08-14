@@ -36,7 +36,7 @@ longitudinal transition observation.
 
 ### Anthropology of the Singularity
 
-> *What are we becoming because of it?*
+> *What are we becoming alongside it?*
 
 - **Japanese:** シンギュラリティ人類学
 - **Perspective:** humanity and lived transition
